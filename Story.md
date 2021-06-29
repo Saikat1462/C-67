@@ -24,3 +24,5 @@ Villager: What happened to you?
 
 Moral of the story:
 Don’t chase happiness. Enjoy your life.
+
+Bad
